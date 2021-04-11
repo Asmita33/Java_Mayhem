@@ -16,5 +16,5 @@ Hack 36 Badge:
 https://drive.google.com/drive/folders/1EiHbk4XiKpX53dN7hp9MSaPlSg87QJVD?usp=sharing
 
 Asmita Yadav(20195007)
-Ayushvant Gaurav(20195024)
+Ayushwant Gaurav(20195024)
 Anchal Yadav(20198071)
